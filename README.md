@@ -15,7 +15,7 @@ Welcome to my profile
 
 🌱 Currently learning Excel, Power BI & Data Visualization
 
-🎯 Goal: To build a strong career in Business Analytics
+🎯 Goal: To build a strong career in Business Analytics and Management
 
 🛠️ Skills
 
