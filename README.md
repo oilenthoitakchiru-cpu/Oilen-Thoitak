@@ -7,7 +7,7 @@ Welcome to my profile
 
 🚀 About Me
 
-🎓 Pursuing Bachelor’s Degree in Business Administration, India
+🎓 Pursuing Bachelor’s Degree in Business Administration in IBM , India
 
 📊 Interested in Data Analysis, Business Strategy & Management
 
@@ -49,7 +49,7 @@ Strategy recommendations
 
 Studied brands like Amul, Parle-G, Thums Up Education
 
-🎓 Bachelor’s Degree (BBA / Business Studies)📍 [Assam down town University, Gauhati]📅 [2025-28]
+🎓 Bachelor’s Degree (BBA / Business Studies) IBM 📍 [Assam down town University, Gauhati]📅 [2025-28]
 
 📫 Connect With Me
 
